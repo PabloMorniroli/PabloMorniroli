@@ -1,3 +1,6 @@
+
+![Black Liquid Minimalist Daily Quotes LinkedIn Banner (19)](https://github.com/PabloMorniroli/PabloMorniroli/assets/156607990/88424352-cc17-40aa-b5d5-fb1eb5349f3d)
+
 Hola, soy Pablo 👋
 
 🚀 Un Analista de Datos con un background de +13 años de experiencia desempeñando puestos de responsabilidad en Logística (producción, almacén, transporte).
